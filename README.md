@@ -9,7 +9,6 @@
 <p>- <b>Email:</b> rg21k@gmail.com</p><br/>
 <p><b>Donations:</b></p>  
 <p>-     <b>PayPal:</b> paypal.me/rg21k</p>
-<p>- <b>FundRaiser:</b> https://gofund.me/8661d14e</p><br/>
 <p>Please consider donating so I can continue motivated, publishing & developing more of my work and of course pay my bills.</p>
 
 
