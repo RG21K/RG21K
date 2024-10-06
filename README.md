@@ -6,9 +6,9 @@
 - 📫 How to reach me:
 <br/>
 <p><b>Contacts</b></p>
-<p>- <b>Email:</b> rg21k@gmail.com</p><br/>
+<p>- <b>Email:</b> xrtekk@gmail.com</p><br/>
 <p><b>Donations:</b></p>  
-<p>-     <b>PayPal:</b> paypal.me/rg21k</p>
+<p>- 
 <p>Please consider donating so I can continue motivated, publishing & developing more of my work and of course pay my bills.</p>
 
 
