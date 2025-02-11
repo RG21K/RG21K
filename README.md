@@ -8,7 +8,7 @@
 <p><b>Contacts</b></p>
 <p>- <b>Email:</b> rg21k@outlook.com</p><br/>
 <p><b>Donations:</b></p>  
-<p>- PayPal: paypal.me/rg21k 
+<p>- https:\\www.PayPal: paypal.me/rg21k 
 <p>Please consider donating so I can continue motivated, publishing & developing more of my work and of course pay my bills.</p>
 
 
